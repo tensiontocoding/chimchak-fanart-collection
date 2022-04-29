@@ -1,3 +1,3 @@
-# chimchak-fanart
+# chimchak-fanart-collection
 
 
